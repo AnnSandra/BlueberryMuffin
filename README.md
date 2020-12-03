@@ -1,1 +1,1 @@
-receipe for blueberry muffin
+Receipe to make  yummy Blue Berry Muffins
